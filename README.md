@@ -1,5 +1,3 @@
-#这是我的一些笔记
-
 ##养生视频
 http://study.163.com/course/introduction/706105.htm  求己不求医--远离亚健康
 
